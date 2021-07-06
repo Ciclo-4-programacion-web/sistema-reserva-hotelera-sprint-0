@@ -1,0 +1,1 @@
+Carppeta de imágenes
